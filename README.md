@@ -1,5 +1,5 @@
 # Norton-rose-fullbright-fullbright-and-jaworski
-
+##https://allcasting.com the bouncer the bar back the bar tender the customer the patron the civilians ghe ciyizens the pedestrians
 ##https://www.dvidshub.net
 ##https://www.busan.go.kr/index
 ##https://www.icloud.com/storage/
